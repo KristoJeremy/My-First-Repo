@@ -1,1 +1,1 @@
-Nama    : Kristo JeremyNM     : 2106633310Kelas   : D
+Nama    : Kristo JeremyNM     : 2106633310Kelas   : DHobi   : Ngoding
