@@ -1,0 +1,1 @@
+Nama    : Kristo JeremyNM     : 2106633310Kelas   : D
